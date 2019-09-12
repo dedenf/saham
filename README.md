@@ -1,2 +1,2 @@
 ## Saham
-Tujuannya untuk dokumentasikan investasi saham
+apapun soal saham
